@@ -8,6 +8,7 @@
 
   **GitHub:** [Rapsodytrue](https://github.com/Rapsodytrue)
 
+
 ## About me
   I am diligent, patient and goal-oriented, I easily find common language with people, I can work both in a team and alone. 
   IT attracts by the fact that here you need to constantly learn something new, develop and be able to find a solution to any problem.
